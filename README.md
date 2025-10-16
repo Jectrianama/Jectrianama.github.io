@@ -1,2 +1,2 @@
-# Jenntriana.github.io
+# Jectrianama.github.io
 My personal Website
